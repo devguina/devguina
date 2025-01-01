@@ -1,6 +1,5 @@
 # Hi there, I’m Guilherme👋
  I live in Minas Gerais Southeast Brazil📫 <br/>
- At the moment, my projects are private, I only publish the course content for teachers of the respective subjects to check, as it is worth points.
 
  
 ## My Skills
